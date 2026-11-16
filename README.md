@@ -1,2 +1,1 @@
 # Hukusyocomputet
-aiueo
